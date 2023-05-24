@@ -10,4 +10,4 @@
 
 🐮 Fun fact: I worked as a meat cutter through college, so I know a lot about meat, especially beef! 
 
-🎮 I'm a huge gamer! 📖 Love to Read! 🤓 Always want to learn, especially with tech! 
+🎮 I'm a huge gamer! 📖 Love to Read! 🏀 Love to play basketball 🤓 Always want to learn, especially with tech! 
