@@ -1,7 +1,5 @@
 ### Hi there 👋 ###
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on graduating my bootcamp and getting my first tech job.
 - 🌱 I’m currently learning as a bootcamp Student at Awesome Inc U and specializing in the LAMP stack (with some JS and React as well)
 - 👯 I’m looking to collaborate on anything! 
